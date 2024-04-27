@@ -1,2 +1,0 @@
-# victoriaventura
-PROYECTO DE CULTURA DIGITAL. PARCIAL 2
